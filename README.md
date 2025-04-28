@@ -1,0 +1,1 @@
+# UTS-KecerdasanBuatan-SandraOktavia-2306037-
